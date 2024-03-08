@@ -1,0 +1,1 @@
+Maji Ndogo faces the problem of low access to water. The visualizations attempt to evaluate just how far the effects of this problem such as long hours in queue, limited water points, increase in crime and the effect in the economy. Effective exploration will allow the goverment to utilise whatever little resources are at hand to curb this problem.
